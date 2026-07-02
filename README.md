@@ -2,7 +2,7 @@
 
 > Video hướng dẫn: [Xem tại đây](https://dr-gifter.onrender.com/tutorial)
 
-<img width="1919" height="1079" alt="image" src="https://github.com/user-attachments/assets/d7616ac2-9e9a-4645-a282-e06a927da88f" />
+<img width="1152" height="648" alt="faliingtextv4" src="https://github.com/user-attachments/assets/da1d93ab-509b-4800-99a1-de7bccb6bef4" />
 
 ---
 >Nếu cảm thấy thích thú, bạn có thể ủng hộ mình thông qua tài khoản này, để mình có thêm động lực tạo ra nhiều thứ hay hơn
